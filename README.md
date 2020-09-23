@@ -1,0 +1,2 @@
+# ATCG
+wurenxiaozu
